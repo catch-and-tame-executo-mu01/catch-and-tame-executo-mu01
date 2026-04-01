@@ -1,4 +1,4 @@
-
+Free best dig deeper Scripts | spd + tele brings you the best free scripts for dig deeper, featuring spd and tele. Our mission is to empower players with the resources they need to excel. Say goodbye to paywalls and hello to unlimited possibilities.
 
 
 ---
